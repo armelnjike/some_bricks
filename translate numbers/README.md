@@ -1,0 +1,5 @@
+TRADUIRE DES NOMBRES ENTIERS EN LETTRES
+
+USAGES POSIBLES :Programmes de gestion et finances
+
+By ARMEL NJIKE
